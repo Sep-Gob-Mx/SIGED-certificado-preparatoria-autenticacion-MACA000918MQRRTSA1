@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MACA000918MQRRTSA1
+MACA000918MQRRTSA1
